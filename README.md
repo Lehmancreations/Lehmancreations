@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lehmancreations
-- 👀 I’m interested in ... Podcasts, and Home automation
+- 👀 I’m interested in ... Podcasts, podcasting, rss and other things!
 🎤 🎧
 
 <!---
